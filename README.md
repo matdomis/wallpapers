@@ -6,3 +6,6 @@ cantinho pra guardar umas telas boas que encontro pela infinita caminhada na int
 
 #### mewtwo
 ![mewtwo](https://raw.githubusercontent.com/matdomis/wallpapers/main/mewtwo.jpg?token=AIPM7UCWBPJLIFHIJU5GEUDATM2HK)
+
+#### gengarzin
+![gengarzin] (https://cdna.artstation.com/p/assets/images/images/028/132/720/medium/simone-ortiz-gengar.jpg?1593573488)
