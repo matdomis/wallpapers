@@ -15,3 +15,9 @@ cantinho pra guardar umas telas boas que encontro pela infinita caminhada na int
 
 #### streets of whiterun
 ![whiterun](https://i.redd.it/wmbfe8pcnl341.jpg)
+
+#### gengar sentadinho
+![gengarsentadinho](https://imgur.com/a/2ngZ4GG)
+
+#### planeterra
+![planeterra](https://external-content.duckduckgo.com/iu/?u=http%3A%2F%2Fwallpapercave.com%2Fwp%2FEerviPX.jpg&f=1&nofb=1)
