@@ -21,3 +21,6 @@ cantinho pra guardar umas telas boas que encontro pela infinita caminhada na int
 
 #### planeterra
 ![planeterra](https://external-content.duckduckgo.com/iu/?u=http%3A%2F%2Fwallpapercave.com%2Fwp%2FEerviPX.jpg&f=1&nofb=1)
+
+#### cidade 8 bits
+![8bitscidade](https://preview.redd.it/r8d137vu1wk81.png?width=960&crop=smart&auto=webp&s=ee095554d4817ca1e16157d93a7dd2ff9bcf5f63)
