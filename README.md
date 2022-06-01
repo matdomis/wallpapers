@@ -4,7 +4,7 @@ cantinho pra guardar umas telas boas que encontro pela infinita caminhada na int
 #### ntp-8
 ![montanhas](https://i.imgur.com/Ce4Fr6H.jpg)
 
-#### mewtwo
+#### mew2
 ![mewtwo](https://i.imgur.com/dLPOhXS.jpeg)
 
 #### gengarzin
@@ -33,3 +33,6 @@ cantinho pra guardar umas telas boas que encontro pela infinita caminhada na int
 
 #### cidade 8 bits
 ![8bitscidade](https://preview.redd.it/r8d137vu1wk81.png?width=960&crop=smart&auto=webp&s=ee095554d4817ca1e16157d93a7dd2ff9bcf5f63)
+
+#### mew2_2
+![mew2](https://wallpaperaccess.com/full/3503731.jpg)2
