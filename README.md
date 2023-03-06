@@ -1,5 +1,5 @@
 # wallpapers
-cantinho pra guardar umas telas boas que encontro pela infinita caminhada na interwebs
+cantinho pra guardar umas telas boas que encontro pela infinita caminhada na interwebs :)
 
 #### ntp-8
 ![montanhas](https://i.imgur.com/Ce4Fr6H.jpg)
@@ -35,4 +35,7 @@ cantinho pra guardar umas telas boas que encontro pela infinita caminhada na int
 ![8bitscidade](https://preview.redd.it/r8d137vu1wk81.png?width=960&crop=smart&auto=webp&s=ee095554d4817ca1e16157d93a7dd2ff9bcf5f63)
 
 #### mew2_2
-![mew2](https://wallpaperaccess.com/full/3503731.jpg)2
+![mew2](https://wallpaperaccess.com/full/3503731.jpg)
+
+#### greengalaxy
+![grengalaxy](https://wallpaper.dog/large/10698348.jpg)
