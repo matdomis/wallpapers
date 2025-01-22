@@ -47,3 +47,6 @@ open source de wallpapers: [wallhaven](https://wallhaven.cc/)
 
 #### futuristic city raining
 ![city_raining](./city-raining-futuristic.png)
+
+### red anime eyes
+![red_anime_eyes](https://w.wallhaven.cc/full/m3/wallhaven-m3718y.png)
